@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-NITJ980611MMCSRN02
+NITJ980611MMCSRN02
